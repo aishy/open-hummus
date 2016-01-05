@@ -26,11 +26,17 @@ Ingredients:
 
 Method:
 1. Soak chickpeas overnight in lots of water and bicarbonate of soda.  The next day rinse soaked chickpeas thoroughly and add to a pan of boiling water (lots of water). Adjust to a medium heat so that the water is gently boiling and leave a lid slightly ajar on the top of the pan. Cook until chickpeas are very tender (approx 40 minutes)
+
 2. Add drained chickpeas to food processor with 2 tablespoons of water and blend for 5 minutes.  Stop blender to scrape down chicpeas and blend for another 5 minutes.  A lot of blending gives a really creamy end result.
+
 3. Add juice of 1/2 a lemon, 1 crushed garlic clove and sea salt.  Blend for a couple of minutes.
+
 4. Add 4 tablespoons of tahini and blend until smooth.
+
 5. While the blender is on trickle in cold water 1 tablespoon of cold water at a time until you get the consitency you like.
+
 6. Taste to check if more salt is required and add more if needed.
+
 7. Spread the hummus into a shallow bowl and drizzle olive oil on top to serve.
 
 
