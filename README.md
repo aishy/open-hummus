@@ -25,9 +25,10 @@ Ingredients:
 4 tablespoons extra vrigin olive oil (Iliada greek olive oil)
 
 Method:
+
 1. Soak chickpeas overnight in lots of water and bicarbonate of soda.  The next day rinse soaked chickpeas thoroughly and add to a pan of boiling water (lots of water). Adjust to a medium heat so that the water is gently boiling and leave a lid slightly ajar on the top of the pan. Cook until chickpeas are very tender (approx 40 minutes)
 
-2. Add drained chickpeas to food processor with 2 tablespoons of water and blend for 5 minutes.  Stop blender to scrape down chicpeas and blend for another 5 minutes.  A lot of blending gives a really creamy end result.
+2. Add drained chickpeas to food processor with 2 tablespoons of water and blend for 5 minutes.  Stop blender to scrape down chickpeas and blend for another 5 minutes.  A lot of blending gives a really creamy end result.
 
 3. Add juice of 1/2 a lemon, 1 crushed garlic clove and sea salt.  Blend for a couple of minutes.
 
